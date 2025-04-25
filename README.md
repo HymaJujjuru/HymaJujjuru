@@ -1,6 +1,7 @@
 ## Hi there 👋
 <Pic here>
-LinkedIn: [My LinkedIn Page](https://www.linkedin.com/in/hymajujjuru/)
+LinkedIn: https://www.linkedin.com/in/hymajujjuru/
+
 Bio:
 
 Contact Info:
