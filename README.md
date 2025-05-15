@@ -15,4 +15,3 @@ When I’m not in the lab or in meetings, you’ll probably find me cooking with
 
 Contact Info: <br/>
 cherryhyma@gmail.com <br/>
-720-384-8746
